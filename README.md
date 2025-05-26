@@ -14,7 +14,7 @@ My favorite genres are Sci-Fi and Fantasy by far, though lately everything has b
 Some of my most cherished reads so far include *“That Time I Reincarnated as a Slime”*—an entertaining blend of whims, adventure, and comedy and *“Heaven Official’s Blessing”*, which I would recommend only to those open to exploring LGBTQ literature, as it beautifully weaves themes of love and acceptance.<br>
 
 #### Video Games
-My taste in video games reflects my love for storytelling, as I primarily immerse myself in Fantasy and Adventure titles. I have a particular fondness for games that allow me to forge bonds with animal companions, such as *Palworld* and, of course, the beloved *Pokémon* series. Ironically, I've recently come to realize that turn-based video games and those with limited character customization are not quite to my liking, as I find them confining.  I say ironically because LITRPGS are essentially novels based in environments traditionally found in turn-based games. <br>
+My taste in video games reflects my love for storytelling, as I primarily immerse myself in Fantasy and Adventure titles. I have a particular fondness for games that allow me to forge bonds with animal companions, such as *Palworld* and, of course, *Pokémon*. Ironically, I've recently come to realize that turn-based video games and those with limited character customization are not quite to my liking, as I find them confining.  I say ironically because LITRPGS are essentially novels based in environments traditionally found in turn-based games. <br>
 
 
 ## Helpful Discoveries
